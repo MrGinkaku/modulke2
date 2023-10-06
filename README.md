@@ -1,3 +1,3 @@
 # modulke2
 
-halo gaes welcome to my repo
+halo gaes welcome to my repo, gua ganteng
